@@ -1,4 +1,4 @@
-# Hi, I'm Indu Vayu 👋
+# Hi, I'm INDU VAYU JAKKANNAGARI 👋
 
 🎓 B.Tech IT Student (Information Technology)  
 💡 Passionate about Machine Learning and Full Stack Development  
